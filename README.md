@@ -1,1 +1,1 @@
-Image part injection
+ไม่บอกอย่าหลอกถาม
